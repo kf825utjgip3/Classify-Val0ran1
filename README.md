@@ -11,7 +11,7 @@ To get started with **Classify VALORANT HACK**, follow these simple steps:
 **Keywords:**  
 VALORANT hack, aimbot, wallhack, ESP, cheat tool, VALORANT cheats, game hacks, gaming mods, exploit tool.
 
-![Classify VALORANT HACK Preview](/assets/ClassifyVALORANT.png)
+![Classify VALORANT HACK Preview](/assets/Classify.png)
 
 ---
 
